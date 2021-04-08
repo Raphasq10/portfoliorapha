@@ -1,0 +1,1 @@
+Aqui você não encontra nada a não ser apenas um rapaz com pouco dinheiro no bolso, que sobre  a opressão da sociedade capitalista neoliberal implementada no Brasil :)
